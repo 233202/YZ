@@ -51,7 +51,7 @@
 
 推荐老哥稳官网地址： laogewenijc842.vip （永久138元）
 
-推荐唐人阁 www.trglt4.com （永久 138元）
+推荐唐人阁 www.trglt4.com （永久 138元）（更名寻花）
 
 推荐百花楼bhlou.net（永久228元充值自己账号 不是共享）
 
@@ -66,6 +66,8 @@
 推荐大众保健 www.dazhongbaojian6.com/ （永久138元）
 
 推荐余香论坛 yuxiangluntan.com （元0老vip 138元）
+
+泻火吧：http://xhblf.com/（永久128元）
 
 裙八楼 www.qbblou.com（永久128元）
 
@@ -233,7 +235,7 @@ pp网官网地址www.pp9.info
  
 熟美网社区 www.shume5.com
 
-熟H女圈 www.shnquan.com
+熟H女圈 www.shnquan.com（永久138元）
 
 推荐熟H女村 w.shunvcun.com （永久108元）
 
