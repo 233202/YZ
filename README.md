@@ -45,7 +45,7 @@
   
 推荐温柔乡 www.wrx21.com（永久128元）
 
-寻欢H阁 www.17xhg.com（暂时没号）
+推荐寻欢H阁 www.17xhg.com （永久148元）
 
 推荐一品楼 xh1.info （永久138元）
 
