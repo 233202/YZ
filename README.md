@@ -47,37 +47,37 @@
 
 推荐寻欢H阁 www.17xhg.com （永久148元）
 
-推荐一品楼 xh1.info （永久138元）
+推荐一品楼 https://www.xh1.info/（永久138元）
 
-推荐老哥稳官网地址： laogewenijc842.vip （永久138元）
+推荐老哥稳官网地址：https://laogewenijc842.vip/ （永久138元）
 
 推荐唐人阁 www.trglt4.com （永久 138元）（更名寻花）
 
-推荐百花楼bhlou.net（永久228元充值自己账号 不是共享）
+推荐百花楼http://bhlou.net/（永久228元充值自己账号 不是共享）
 
-推荐兰桂坊lgf668.us （永久178充值自己账号 不是共享）
+推荐兰桂坊https://lgf668.us/ （永久178充值自己账号 不是共享）
 
-推荐修车大队 xcdd-3.xyz （永久128元）
+推荐修车大队 https://xcdd-3.xyz/（永久128元）
 
 推荐武汉狼盟 www.dp366.org（永久118元）
 
-推荐新媛论坛 xylt1.com（永久118元）
+推荐新媛论坛 https://xylt1.com/forum.php（永久118元）
 
 推荐大众保健 www.dazhongbaojian6.com/ （永久138元）
 
-推荐余香论坛 yuxiangluntan.com （元0老vip 138元）
+推荐余香论坛 https://yuxiangluntan.com/ （元0老vip 138元）
 
 泻火吧：http://xhblf.com/（永久128元）
 
 裙八楼 www.qbblou.com（永久128元）
 
-爱妹社 aimei253.com/ 
+爱妹社 http://aimei253.com/
 
 我就要桑拿 www.59136x.info（元0老vip 138元）
 
 baby有约 www.yuebbaby.com（永久 158元）
 
-大圈360 daquan3601.com
+大圈360 https://daquan3601.com/
 
 推荐023龙凤地址： www.023lfw.com/（永久118元）
 
@@ -85,12 +85,11 @@ baby有约 www.yuebbaby.com（永久 158元）
 
 推荐紫兰轩 www.98xiaozi.com（永久128元）
 
-推荐凤江湖 199.188.106.180（元0老vip 138元）
+推荐凤江湖 http://fjhox.com/forum.php （永久vip 138元）用谷歌或者火狐.欧朋等浏览器
 
 爬花楼 www.p019.info（永久118元）
 
 爬花楼 www.jbt4.com
-
 
 杭州潇湘 www.xxg21.com（永久108元）
 
@@ -127,15 +126,15 @@ baby有约 www.yuebbaby.com（永久 158元）
 
 爱北京官网地址： www.aibj.pro（永久 128元）
 
-泉州夜网官网地址： 0595yw.cc
+泉州夜网官网地址： http://0595yw.cc/
 
 采花楼官网地址： www.chlbb.com
 
-QM阡陌同城社区官网地址： app.qianmo.me
+QM阡陌同城社区官网地址：http://0595yw.cc/
 
 犬马之家官网地址： www.qmzhijia45.com
 
- 色H色虎官网地址： sesehu1.cc（永久 128元）
+ 色H色虎官网地址：http://sesehu1.cc/（永久 128元）
  
 一粒米论坛官网地址： www.51xiaomoxian.com
 
@@ -143,11 +142,9 @@ QM阡陌同城社区官网地址： app.qianmo.me
 
 蒲君吧官网地址： www.qmpjb.topp
 
-新媛论坛官网地址： xylt2.com
-
 京妃殿官网地址： www.jfd18.com
 
-91H凤H楼网官网地址： 9faa.xyz
+91H凤H楼网官网地址： 9faa.xyz （没货）
 
 伊甸园官网地址： www.ydy-5.com/member.php?mod=register&fromuid=275739
 
@@ -169,7 +166,7 @@ QM阡陌同城社区官网地址： app.qianmo.me
 
 梦雨楼官网地址： www.77mengyu.com
 
-深部诱集官网地址： shenbu01.com
+深部诱集官网地址： https://shenbu01.com/（永久128元）
 
 洗米网官网地址： www.ximioo88.com
 
@@ -179,9 +176,9 @@ QM阡陌同城社区官网地址： app.qianmo.me
 
 趴小H姐信H息网官网地址： www.paxiaojie006.xyz
 
-花丛官网地址： bhc667.com 
+花丛官网地址： http://bhc667.com/
 
-小喇叭官网地址： xlblt1.xyz
+小喇叭官网地址： http://xlblt1.xyz/forum.php
 
 滋春阁官网地址： www.zcg11.xyz
 
@@ -248,7 +245,7 @@ pp网官网地址www.pp9.info
  
 熟美网官网地址： www.shume5.com
 
-推荐杏H吧-楼H凤官网地址： www.lvbby.com(包永久118元)
+推荐杏H吧-楼H凤官网地址：https://tg01.duoduomxm.bar/170208740 (包永久138元)
 
 推荐暗香阁官网地址： 111axg.xyz （久138元）
 
