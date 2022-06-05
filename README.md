@@ -139,6 +139,8 @@ baby有约 www.yuebbaby.com（  永久 158元）
 
 QM阡陌同城社区官网地址：http://0595yw.cc/
 
+杏十八官网地址： www.xing18.cc
+
 犬马之家官网地址： www.qmzhijia45.com
 
  色H色虎官网地址：http://sesehu1.cc/   （永久 128元）
