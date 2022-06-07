@@ -258,6 +258,20 @@ pp网官网地址www.pp9.info
 
  视频图片街拍等综合论坛共享账号
  
+推荐桃花族：http://99thz.cc//forum.php（永久128）
+ 
+推荐SM电影网：http://www.mmdyw173.club/（永久138元）
+
+推荐SM女主天地：http://www.nztd34.com/（新终身会员158元）
+
+推荐麦优草榴论坛：https://www.macup.net/（永久138）
+
+推荐司空论坛：https://siklt0.com/（永久128元）
+
+推荐地球人讨论区：https://seeuu.cc/（永久138）
+
+皇冠绳艺：https://www.rmu7.club/（皇冠永久128元）
+ 
 熟美网官网地址： www.shume5.com
 
 推荐杏H吧-楼H凤官网地址：https://tg01.duoduomxm.bar/170208740   (包永久138元)
@@ -265,6 +279,8 @@ pp网官网地址www.pp9.info
 推荐暗香阁官网地址： 111axg.xyz    （久138元）
 
 推荐草榴社区地址：caoliu1024.com  （永久100元）
+
+爱露出：http://www.62luchu.net/ （终身赞助118元）
 
 推荐1024精品论坛官网地址： https://www.1024pb.com  （账号不带会员118元 带永久vip 248元）
 
