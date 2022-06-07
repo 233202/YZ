@@ -268,6 +268,12 @@ pp网官网地址www.pp9.info
 
 推荐1024精品论坛官网地址： https://www.1024pb.com  （账号不带会员118元 带永久vip 248元）
 
+推荐第一会所：https://sis001.d2ps.icu/ （赞助会员包永久198元）
+
+色中色：http://174.127.195.67/bbs/index.php（永久158元）
+
+2048核基地：a.h9w0.online/2048/
+
 杏十八官网地址： www.xing18.cc
 
 推荐老王论坛官网地址： laowanghui324.vip   （永久 138元）
