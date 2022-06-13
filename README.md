@@ -463,4 +463,12 @@ ASMR视听网 www.asmr.st/
 
 推荐饭拍资源网 www.fanpaixiu.cc
 
+ 小说论坛共享账号
+ 
+第一文学网：https://www.yitxt.net/
+
+第一文学网：https://www.yitxt.net/
+
+可可书吧：https://www.2cenglou.com/
+
 以上账号均是共享账号！共享账号不能发帖或者改密码！否则导致封号找回等问题不售后！谨慎！谨慎！谨慎！
