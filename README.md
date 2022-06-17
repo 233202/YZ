@@ -64,7 +64,7 @@
 
 推荐兰桂坊https://lgf668.us/   （永久178充值自己账号 不是共享）
 
-推荐修车大队 https://xcdd-3.xyz/  （永久128元）
+推荐修车大队 https://xcdd-3.xyz/  （永久138元）
 
 推荐花月楼：http://www.huayl.cc/（永久128元）
 
@@ -440,6 +440,9 @@ ASMR视听网 www.asmr.st/
 推荐恋H足吧 www.221089.com/   （永久138元） 
 
 推荐诗安远方 www.sheisonline.com.cn/    （永久78）
+
+青莲视界：http://lookql.com/ （尊贵vip138元）
+
 
 街拍写真共享账号
 
