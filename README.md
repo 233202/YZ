@@ -290,6 +290,8 @@ pp网官网地址www.pp9.info
 
 色中色：http://174.127.195.67/bbs/index.php（永久158元）
 
+嗨乐舍 haileshe.club/（永久128元）
+
 2048核基地：a.h9w0.online/2048/
 
 杏十八官网地址： www.xing18.cc
